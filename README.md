@@ -1,1 +1,1 @@
-https://carmelo77.github.io
+google.com, pub-8955180310605823, DIRECT, f08c47fec0942fa0
